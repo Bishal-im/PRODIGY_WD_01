@@ -1,3 +1,3 @@
 # PRODIGY_WD_01
 
-just a Intern project by prodigy InfoTech jjjjjjjjjjjjjjjjjjjjjjjjjjjjjpppppppppppppppppppppppppppjjjjjjj
+just a Intern project by prodigy InfoTech 
